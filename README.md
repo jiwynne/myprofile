@@ -1,7 +1,7 @@
 # James Wynne - Profile
 # Senior Technical Writer | AI-Enhanced Documentation | Office Automation &amp; DTP Specialist | B2B Tech
 
-<img width="917" height="197" alt="image" src="https://github.com/user-attachments/assets/9ceac511-3947-48bf-a50d-a62f32ea0835" />
+<img width="854" height="170" alt="image" src="https://github.com/user-attachments/assets/bf8cad9f-2d7a-4ce5-8745-081ccffff26f" />
 
 ---
 
